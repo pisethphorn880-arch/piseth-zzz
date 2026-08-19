@@ -1,1 +1,1 @@
-﻿No yapper
+﻿No yapper is allowed
